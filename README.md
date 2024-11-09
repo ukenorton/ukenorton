@@ -1,6 +1,6 @@
 dante　 　 ​
 ​
-he / him　arospec 　​
+they / him　arospec nb
 ​
 
 asbpd　　more info: ​
